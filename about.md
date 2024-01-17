@@ -21,7 +21,7 @@ I have a desire to be in the IT industry, hence I want to pursue a course in TEA
 
 ### My Application
 
-My name is **Mercy Michael Ihemedo**, I was born on 5th August 1990. I am single and I run my own business. I grew up loving computer technology so much that i want to build a career on it. I developed the interest from watching movies about tech gurus and everything technology. I love anything software, cyber security, its fascinating!
+My name is **Mercy Michael Ihemedo**, I was born on 5th August 1990. I am single and I run my own business. I grew up loving computer technology so much that i want to build a career on it. I developed the interest from watching movies about tech gurus and everything technology. I love everything technology, its very fascinating!
 
 I like brainstorming ideas and finding solutions somehow i got that skills from my teenage years because I'm the first daughter and I took up responsibility of providing and assisting my parents with my younger ones very earlier in life.
 
