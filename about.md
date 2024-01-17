@@ -29,7 +29,7 @@ Most of the courses costs an arm and a leg so i was not buoyant to go for it. I 
 
 Unfortunately I have not been able to fulfill that dream yet because my life has been a whole lots of ups and downs. But i have not given up on that. It has not really been an easy journey but I am grateful.
 
-I was intrigued and so excited when a friend told me about Tech Expert Academy (TEA) and linked me up to your website. I want to gain a skill in the constant exciting world of technology, especially in the field of Machine Learning and Artificial intelligence/ Data Science and I know TEA will help me realize that skill and dream. I really wish and hope I will meet your criteria for selection. 
+I was intrigued and so excited when a friend told me about Tech Expert Academy (TEA) and linked me up to your website. **I want to gain a skill in the constant exciting world of technology, especially in the field of Machine Learning and Artificial intelligence/ Data Science and I know TEA will help me realize that skill and dream**. I really wish and hope I will meet your criteria for selection. 
 
 The most important thing for me is to enjoy my work and technology is that ideal goal for me. I can't wait to jump right into it, only if you approve my application.
 
