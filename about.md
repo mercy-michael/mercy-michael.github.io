@@ -35,7 +35,9 @@ Most of these Technology courses costs an arm and a leg so I was not buoyant eno
 
 Unfortunately I have not been able to fulfill that dream yet because my life has been a whole lots of ups and downs. But I have not given up on that. Life has not really been an easy journey for me but I am grateful.
 
-I was happy and so excited when a friend told me about TEA and linked me up to your website. That is why I'm here to apply to TEA and positively hoping to be one of the approved candidates for trainings. **I want to gain a skill in the constant exciting world of technology, especially in the field of Machine Learning and Artificial intelligence/ Data Science and I know TEA will help my dream skill to become a reality**. I really wish and hope I will meet your criteria for selection. 
+I was happy and so excited when a friend told me about TEA and linked me up to your website. That is why I'm here to apply to TEA and positively hoping to be one of the approved candidates for trainings. **I want to gain a skill in the constant exciting world of technology, especially in the field of Machine Learning and Artificial intelligence/ Data Science and I know TEA will help my dream skill to become a reality**. 
+
+I really wish and hope I will meet your criteria for selection. 
 
 The most important thing for me is to enjoy my work and technology is that ideal goal for me. I can't wait to jump right into it, only if you approve my application.
 
