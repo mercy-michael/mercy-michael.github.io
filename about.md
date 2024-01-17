@@ -7,7 +7,7 @@ title: About
 
 Hi, TODAY is going to be a beautiful day. Its nice to meet you. 
 
-My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for an IT course in Tech Experts Academy
+My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for an IT course in Tech Experts Academy (TEA).
 
 ## Welcome To Mercy Michael's Github Application Page.
 
