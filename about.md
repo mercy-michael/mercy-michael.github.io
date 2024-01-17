@@ -27,7 +27,7 @@ I like brainstorming ideas and finding solutions to problems. Somehow I got that
 
 Most of these Technology courses costs an arm and a leg so I was not buoyant enough to go for it much earlier in life. I wanted to start somewhere that can help me learn while still making a living, that was how i started learning how to create websites with WordPress. I did more of self learning online. That was how i was able to start my own business. 
 
-> What I do is, 
+> What I do is:
 > - Source for product,
 > - Import,
 > - Create sales pages of the product and
