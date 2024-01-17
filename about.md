@@ -5,7 +5,7 @@ title: About
 
 ## About
 
-Hi, nice to meet you. My name is Mercy Michael Ihemedo, and i am designing this Github website to apply to Tech Experts Academy
+Hi, nice to meet you. My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for a course on Machine Learning/Data Science in Tech Experts Academy
 
 ## Welcome To Mercy Michael's Github Application Page.
 
