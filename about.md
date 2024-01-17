@@ -33,7 +33,7 @@ I was intrigued and so excited when a friend told me about Tech Expert Academy (
 
 The most important thing for me is to enjoy my work and technology is that ideal goal for me. I can't wait to jump right into it, only if you approve my application.
 
-Personally, I learn very fast and I like brainstorming ideas. 
+> ***Personally, I learn very fast and I like brainstorming ideas.***
 
 I truly hope and wish you can help me actualize this dream of becoming part of the IT industry. I truly love to be part of it. I hope my application will be favorably considered.
 
@@ -41,4 +41,4 @@ Thank you in advance sir/ma.
 
 ### Contact
 
-You can reach me on <peaffkdp@gmail.com>
+You can reach me on my e-mail here <peaffkdp@gmail.com>
