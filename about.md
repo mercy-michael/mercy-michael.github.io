@@ -5,7 +5,7 @@ title: About
 
 ## About
 
-Hi, TODAY is a beautiful day, its nice to meet you. 
+Hi, TODAY is going to be a beautiful day. Its nice to meet you. 
 
 My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for a course on Machine Learning/Data Science in Tech Experts Academy
 
