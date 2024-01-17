@@ -43,9 +43,9 @@ The most important thing for me is to enjoy my work and technology is that ideal
 
 > ***Personally, I learn very fast and I like brainstorming ideas.***
 
-I hope and wish you can help me actualize this dream of becoming part of the IT industry. I love to be part of it. I hope my application will be favorably considered.
+I hope and wish you can help me actualize this dream of becoming part of the IT industry. I love to be part of it.
 
-Thank you in advance of your approval sir/ma.
+Thank you in advance sir/ma.
 
 ### Contact
 
