@@ -7,11 +7,11 @@ title: About
 
 Hi, TODAY is going to be a beautiful day. Its nice to meet you. 
 
-My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for a course on Machine Learning/Data Science in Tech Experts Academy
+My name is Mercy Michael Ihemedo, and I am designing this Github website to apply for a Machine Learning/Data Science Course in Tech Experts Academy
 
 ## Welcome To Mercy Michael's Github Application Page.
 
-### Why 
+### Why Design this page?
 
 I am designing this website on GitHub to apply for Machine Learning/Data Science in Tech Expert Academy. I hope my application for Machine Learning will be approved by TEA, that would be my utmost desire.
 
