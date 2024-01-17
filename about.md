@@ -13,7 +13,7 @@ My name is Mercy Michael Ihemedo, and I am designing this Github website to appl
 
 ### Why Design this page?
 
-I am designing this website on GitHub to apply for Machine Learning/Data Science in Tech Expert Academy. I hope my application for Machine Learning will be approved by TEA, that would be my utmost desire.
+I am designing this website on GitHub to apply for Machine Learning/Data Science in Tech Expert Academy. I hope my application will be approved by TEA, that would be my utmost desire.
 
 ### My Motivation
 
