@@ -15,7 +15,7 @@ My name is Mercy Michael Ihemedo, and I am designing this Github website to appl
 
 I am designing this website on GitHub to apply for Machine Learning/Data Science in Tech Expert Academy. I hope my application for Machine Learning will be approved by TEA, that would be my utmost desire.
 
-### What
+### My Motivation
 
 I have a desire to be in the IT industry, hence I want to pursue a course in TEA (Tech Expert Academy) to make that dream become a reality for me.
 
